@@ -1,4 +1,4 @@
-# 
+# ultimate MathType for PC | MathType for Windows Automation | LaTeX-support + parallel-computing offers the most advanced MathType for PC | MathType for Windows automation, with
 
 
 
